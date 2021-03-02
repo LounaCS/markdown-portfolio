@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- learning things
+- drawing
+- the smell of green grass in the spring
+- gingerbread
+- walking under the rain
